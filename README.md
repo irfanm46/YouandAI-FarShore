@@ -91,7 +91,7 @@ Use of this AI or its derivatives is **forbidden** for:
 
 ## Closing Statement
 
-*"Some shores aren’t places — they’re people waiting for you."*
+*"Beyond every ocean is a shore unseen — not of land, but of understanding — where strangers become kin, and no soul drifts alone."*
 
 **Far Shore** is where **code meets care**.
 It is not just software — it is a **lifeline, a community, and a vision for a kinder technological future**.
